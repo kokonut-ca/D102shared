@@ -1,42 +1,17 @@
 # D102shared
 sharing repository
 
+we are going to change this file.
+I don't need to hang my stocking
+There is just one thing I need
+Underneath the Christmas tree
+Santa Claus won't make me happy
 
-I love nicole because
 
+More than you could ever know
+There upon the fireplace
 NICOLE IS A GOOD GIRL!!!!!!!
-
-ni hao nihao nihao !!!!!1
-
-I want to  ahahahahaha
 
 jfowbojjfnocole
 
-
-lolo
-
 NICOLE
-
-shasha
-
-jfgood gire
-
-
- kale
-
- kale
-
- kale
-
- lolo
- moran
-
- zhuzhzu
-
- why
-
- the dog is really cute.
-
- because dog is really really cute  like kale!!!!
-
- kale wa kale wa kwlfjwejfoaijfwea kale is rally a good gire goofoiiew jfoiwej
